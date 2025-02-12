@@ -1,1 +1,1 @@
-gak ush di cek ii cuman bahan gabut
+gak ush di cek, ini cuman bahan gabut
